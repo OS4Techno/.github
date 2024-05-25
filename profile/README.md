@@ -1,1 +1,1 @@
-## MSP with his head office in Montreal, Quebec, Canada
+## MSP with its head office in Montreal, Quebec, Canada
